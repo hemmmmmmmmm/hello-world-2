@@ -4,3 +4,5 @@ Je sais pas quoi dire.
 
 
 Am blessed
+
+We need justice in this life
